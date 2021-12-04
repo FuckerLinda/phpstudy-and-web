@@ -16,3 +16,6 @@ That's all! HAVE FUN!
 
 
 I will try to update these items.
+
+
+\*of course, it has many loopholes
