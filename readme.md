@@ -15,7 +15,7 @@ That's all! HAVE FUN!
 
 
 
-\*of course, it has many loopholes
+> \*of course, it has many loopholes
 
 
 Maybe I will try to update these items.
